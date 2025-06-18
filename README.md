@@ -2,3 +2,5 @@
 
 [![](https://visitcount.itsvg.in/api?id=FlorinaAI&icon=7&color=5)](https://visitcount.itsvg.in)
 
+https://count.getloli.com/@florina?name=florina&theme=asoul&padding=5&offset=0&align=center&scale=2&pixelated=1&darkmode=0
+
